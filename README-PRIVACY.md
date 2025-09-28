@@ -12,7 +12,7 @@ _Last updated: 28 September 2025_
 - Aucune donnée n'est transmise à des tiers.  
 - Pas de publicités, pas de suivi, pas d'analytics.  
 
-**Contact** : support@uconvert.app
+**Contact** : icamgroupbv@gmail.com
 
 ---
 
@@ -24,7 +24,7 @@ _Last updated: 28 September 2025_
 - No data is transmitted to third parties.  
 - No ads, no tracking, no analytics.  
 
-**Contact**: support@uconvert.app
+**Contact**: icamgroupbv@gmail.com
 
 ---
 
@@ -36,7 +36,7 @@ _Last updated: 28 September 2025_
 - Geen gegevens worden verzonden naar derden.  
 - Geen advertenties, geen tracking, geen analytics.  
 
-**Contact**: support@uconvert.app
+**Contact**: icamgroupbv@gmail.com
 
 ---
 
@@ -48,7 +48,7 @@ _Last updated: 28 September 2025_
 - No se transmiten datos a terceros.  
 - Sin anuncios, sin seguimiento, sin analítica.  
 
-**Contacto**: support@uconvert.app
+**Contacto**: icamgroupbv@gmail.com
 
 ---
 
